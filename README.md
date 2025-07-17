@@ -2,7 +2,7 @@
 
 🚀 **Backend Developer | Python Enthusiast | API Specialist**  
 📍 Based in Raipur, Chhattisgarh, India  
-🔗 [Portfolio](https://org.promoterclub.in/login) | [LinkedIn](https://www.linkedin.com/in/vinay-kumar-soni) | [GitHub](https://github.com/Vinay1311)
+🔗 [LinkedIn](https://www.linkedin.com/in/vinay-kumar-soni) | [GitHub](https://github.com/Vinay1311)
 
 ---
 
